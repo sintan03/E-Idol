@@ -1,2 +1,2 @@
-# E-Dimensions
+# E Idol
 Infinity E.
